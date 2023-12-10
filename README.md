@@ -2,4 +2,4 @@
 **The Son of Netflix: Song Kang**
 
 
-![alt text](https://pin.it/jyDrU0W)
+![alt text](https://www.pinterest.ph/pin/462744930479133771/)
