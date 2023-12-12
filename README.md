@@ -6,7 +6,7 @@ Song Kang is a South Korean actor who starred in many shows in Netflix. His nota
 
 ![alt text](https://i.pinimg.com/564x/35/8d/72/358d72b17e4582adec6199fc75a14d53.jpg)
 
-### **Things you NEED to know about Song Kang**
+**Things you NEED to know about Song Kang**
 
 - He's a Taurus!
   
@@ -18,6 +18,6 @@ Song Kang is a South Korean actor who starred in many shows in Netflix. His nota
   
   Not straying far from his chosen career track, he was actually a film major back when was in college. According to his profile on his agency’s official page, Kang attended Konkuk University’s Film Arts Department.
   
-#### **Get to know Song Kang better!**
+### **Get to know Song Kang better!**
 
 [![Video](https://img.youtube.com/vi/YnxYnF2LO54/maxresdefault.jpg)](https://www.youtube.com/watch?v=YnxYnF2LO54)
