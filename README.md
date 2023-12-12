@@ -20,4 +20,4 @@ Song Kang is a South Korean actor who starred in many shows in Netflix. His nota
   
 #### **Get to know Song Kang better!**
 
-[![Video](<iframe width="560" height="315" src="https://www.youtube.com/embed/YnxYnF2LO54?si=zFra-arh0V87khlS" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>)
+[![Video](https://img.youtube.com/vi/YnxYnF2LO54/maxresdefault.jpg)](https://www.youtube.com/watch?v=YnxYnF2LO54)
