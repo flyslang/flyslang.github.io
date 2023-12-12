@@ -9,3 +9,9 @@ Song Kang is a South Korean actor who starred in many shows in Netflix. His nota
 ### **Things you NEED to know about Song Kang**
 
 - He's a Taurus!
+  he was born on April 23, 1994 in Suwon, South Korea.
+- "Love Alarm" was his first lead role.
+  his rise to popularity didn’t take long soon after he was cast as Hwang Sun-oh in the 2019 Netflix original series Love Alarm.
+- He's a film major
+  not straying far from his chosen career track, he was actually a film major back when was in college. According to his profile on his agency’s official page, Kang attended Konkuk University’s Film Arts Department.
+  
